@@ -1,4 +1,4 @@
-# logikeintellectuslumex
+#Logike Intellectus Lumex
 ![2](https://github.com/user-attachments/assets/a5431d0b-0659-40fc-add7-9ed866b5a407)
 ![3](https://github.com/user-attachments/assets/8e343699-af29-4605-ae96-44271dbac790)
 
